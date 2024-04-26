@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Anthony Batista! ​🕊️​✝
+## Bem-vindo(a) ao perfil do Anthony Batista! ​
 
  <div>
    <a href="https://github.com/Anth0ny-Batista">
