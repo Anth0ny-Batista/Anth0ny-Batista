@@ -9,8 +9,6 @@
 
 [![My Skills](https://skillicons.dev/icons?i=html,css,js,java,mysql&theme=dark)](https://skillicons.dev)
  
-<br>
- 
 ### Para me conhecer um pouco mais sobre mim e falar comigo, siga minhas redes abaixo!!!
  
 <div> 
