@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Anthony Batista! ​
+## Seja Bem-vindo(a), Eu sou o Anthony Batista! ​
 
  <div>
    <a href="https://github.com/Anth0ny-Batista">
